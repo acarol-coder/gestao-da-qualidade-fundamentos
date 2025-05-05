@@ -1,1 +1,0 @@
-# gestao-da-qualidade-fundamentos
